@@ -91,10 +91,10 @@ Bank installment available — **3/6/12 months interest-free**, lowering the pro
 
 | Channel | Details |
 |---------|---------|
-| 📞 Hotline | 400-888-XXXX |
-| 📧 Business Email | sales@example-shredder.com |
-| 🌐 Official Website | www.example-shredder.com |
-| 📍 Company Address | XX Industrial Park, Nanjing, Jiangsu |
+| 📞 Hotline | +8613073757790 |
+| 📱 WhatsApp | +8619139765140|
+| 📧 Business Email | huazhi@jxxss.cn |
+| 📍 Company Address | Xingyang Industrial Park, Zhengzhou, Henan Province |
 
 ---
 
